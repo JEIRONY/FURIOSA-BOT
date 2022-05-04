@@ -1,4 +1,4 @@
-## <p align="center"><img src="https://i.imgur.com/nxRFvRC.png" width="220" height="140"/></p>
+## <p align="center"><img src="https://i.imgur.com/ev0Mxfl.png" width="220" height="140"/></p>
 ### `Si necesitas ayuda mandame mensaje`
    ༒☬༒ ᴄᴏɴᴛᴀᴄᴛᴀᴍᴇ  ༒☬༒
 
