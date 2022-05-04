@@ -17,7 +17,7 @@
 > Dar click en la imagen para redireccionarlos a YouTube
 
 ### `AJUSTES`
-- CAMBIAR NÚMERO DE PROPIETARIO [Aqui](https://github.com/JEIRONY/THE-DARK-KING/blob/master/config.js)
+- CAMBIAR NÚMERO DE PROPIETARIO [Aqui](https://github.com/JEIRONY/FURIOSA-BOT/blob/master/config.js)
 
 
 ## `EDITOR DEL BOT` 
