@@ -1,4 +1,4 @@
-## <img height="50" src="https://i.imgur.com/4F7zPjQ.jpeg"></a>&nbsp;&nbsp;
+## <img height="1000" src="https://i.imgur.com/4F7zPjQ.jpeg"></a>&nbsp;&nbsp;
 ### `Si necesitas ayuda mandame mensaje`
    ༒☬༒ ᴄᴏɴᴛᴀᴄᴛᴀᴍᴇ  ༒☬༒
 
