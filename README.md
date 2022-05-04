@@ -1,4 +1,4 @@
-# (https://imgur.com/4F7zPjQ)
+# [JEIRONY](https://imgur.com/4F7zPjQ)
 ### `Si necesitas ayuda mandame mensaje`
    ༒☬༒ ᴄᴏɴᴛᴀᴄᴛᴀᴍᴇ  ༒☬༒
 
